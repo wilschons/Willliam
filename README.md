@@ -8,7 +8,6 @@ Tenho 18 anos
 
 Moro em Cocal do SUl - SC 
 
-Nas horas vagas gosto de sair com os amigos
-
+Nas horas vagas gosto de sair com os am
 
 
